@@ -1,3 +1,3 @@
 
-![ㄷㄱㅇ](ht![scheduleApi](https://github.com/user-attachments/assets/138d6aa6-250d-4fa0-b1da-f90d77a14ec6)
-tps://github.com/user-attachments/assets/7f56356e-d808-4dbf-bd41-0a608659283a)
+![scheduleApi](https://github.com/user-attachments/assets/a11867d1-2757-4b48-ae61-76941e2af358
+![ㄷㄱㅇ](https://github.com/user-attachments/assets/cdf5d926-286b-4622-bc27-531162cb48d3)
